@@ -1,2 +1,3 @@
-# first-repo
-this is my very first github
+# My first repository
+
+My favourite super power would be teleprotation because i think that being able to go anywhere in the world is cool (when i say teleportation im talking about the Jumper movie type teleportation, if you have seen this movie props to you because its pretty good and i would recommend if you havent watched it), another reason is that i can just travel the world without having to worry about paying for it i can just be like boom im in rome or boom im in japan and i just think that's sick because i eventually want to travel the world or most of it. Also i can't die unless i get caught off guard because i can just teleport out of an attack.
